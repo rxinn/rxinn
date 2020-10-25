@@ -1,6 +1,6 @@
 ### woaw!!!! 🛶
 
-![alt text](https://cdn.discordapp.com/attachments/705483166617698345/770009287963181096/w7pg.png)
+![alt text](https://cdn.rxinnnn.xyz/3s13.png)
 <!--
 **rxinn/rxinn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
